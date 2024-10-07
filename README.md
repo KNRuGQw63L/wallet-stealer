@@ -13,7 +13,7 @@
 ✅ Works for all wallets!
 
 ✅ BSC, ETH, BTC and MORE BLOCKCHAINS!
- 
+  
 ✅ Works with the speed of light!
   
 ✅ 2048 WORDS used for secret phrases!
