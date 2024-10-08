@@ -30,7 +30,7 @@
    
 ---------------------------------------------------------------------------------------------------------------
 
-# Guide on how to use the tool 
+# Guide on how to use the tool  
   
 1. Install Python from  
         
