@@ -20,7 +20,7 @@
   
 ✅ EARN 100$ MINIMUM DAILY! 
 
-✅ Cheap Prices!
+✅ Cheap Prices! 
    
 ✅ Easy to run!
   
