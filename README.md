@@ -19,7 +19,7 @@
 ✅ 2048 WORDS used for secret phrases! 
    
 ✅ EARN 100$ MINIMUM DAILY! 
-
+ 
 ✅ Cheap Prices! 
    
 ✅ Easy to run! 
