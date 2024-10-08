@@ -21,7 +21,7 @@
 ✅ EARN 100$ MINIMUM DAILY! 
 
 ✅ Cheap Prices!
-
+ 
 ✅ Easy to run!
  
 ✅ 100% Automatic!
