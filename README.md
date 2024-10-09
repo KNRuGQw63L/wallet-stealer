@@ -24,7 +24,7 @@
     
 ✅ Easy to run!  
    
-✅ 100% Automatic!
+✅ 100% Automatic! 
 
  
    
