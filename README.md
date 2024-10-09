@@ -22,7 +22,7 @@
  
 ✅ Cheap Prices! 
     
-✅ Easy to run! 
+✅ Easy to run!  
    
 ✅ 100% Automatic!
 
