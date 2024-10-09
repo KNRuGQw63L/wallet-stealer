@@ -17,7 +17,7 @@
 ✅ Works with the speed of light!  
    
 ✅ 2048 WORDS used for secret phrases! 
-   
+    
 ✅ EARN 100$ MINIMUM DAILY!  
  
 ✅ Cheap Prices! 
