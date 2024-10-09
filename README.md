@@ -10,7 +10,7 @@
    
 ---------------------------------------------------------------------------------------------------------------   
  
-✅ Works for all wallets!
+✅ Works for all wallets! 
 
 ✅ BSC, ETH, BTC and MORE BLOCKCHAINS!
   
